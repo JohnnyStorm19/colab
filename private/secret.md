@@ -1,1 +1,0 @@
-### Bob / Lilland Palmer killed Lora Palmer
